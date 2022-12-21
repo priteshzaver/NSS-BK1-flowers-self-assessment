@@ -1,0 +1,1 @@
+This is the self assessment for Book 1.
